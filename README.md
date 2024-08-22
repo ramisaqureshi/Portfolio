@@ -10,6 +10,9 @@ https://www.quadplus.com/
 https://secardo.org/
 https://willoweventcenter.com/
 https://blancdeblanc.developmentcorkboard.com/
-https://ubwh.co.uk/
+https://ubwh.co.uk
+https://phonerepairmore.com/
+https://www.sclothers.com/
+https://thevapetown.com/
 
 

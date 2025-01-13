@@ -4,7 +4,6 @@ https://tcc-uk.com/
 https://thefoggyforest.net/
 https://devstarx.com/
 https://www.drbrucesanimalhospital.com/
-https://p5ttonline.com/
 https://wiskund.com/
 https://www.quadplus.com/
 https://secardo.org/
@@ -15,6 +14,4 @@ https://phonerepairmore.com/
 https://www.sclothers.com/
 https://thevapetown.com/
 https://justicesquared.org/
-https://infomats.net/
 https://marriedonthespacecoast.com/
-https://gillani.infomats.net/

@@ -4,7 +4,6 @@ https://tcc-uk.com/
 https://thefoggyforest.net/
 https://devstarx.com/
 https://www.drbrucesanimalhospital.com/
-https://wiskund.com/
 https://www.quadplus.com/
 https://secardo.org/
 https://willoweventcenter.com/
@@ -19,5 +18,12 @@ https://ypmarketingpros.com/
 https://www.publichealthequity.org/
 https://candev.agency/
 https://primemedicineoc.com/
-https://valkyriefirstaid.com.au/
 https://nexadatasolutions.com/
+https://firstcalldpc.com/
+https://gayawellness.com/
+https://we-in-the-world-school-for-changemakers.learnworlds.com/
+https://betterancestor.org/
+https://www.printedtoday.co.uk/
+https://birminghambanners.co.uk/
+https://publichealthequity.org/
+https://beacon4equity.org/

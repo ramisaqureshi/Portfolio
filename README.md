@@ -35,4 +35,4 @@ LearnWorld:
 https://we-in-the-world-school-for-changemakers.learnworlds.com/
 
 Framer:
-https://conclusive-heptagon-620838.framer.app/
+https://agintex.com/

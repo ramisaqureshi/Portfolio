@@ -30,7 +30,7 @@ https://betterancestor.org/
 https://beacon4equity.org/
 https://weintheworld.org/
 https://rise4all.org/
-https://stevenk122.sg-host.com/
+https://changingourselves.weintheworld.org/
 
 LearnWorld:
 https://we-in-the-world-school-for-changemakers.learnworlds.com/

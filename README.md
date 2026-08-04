@@ -25,6 +25,9 @@ https://everestregenerative.com/
 https://nulevelwellnessmedspa.com/
 https://www.eternityhealthpartners.com/
 https://www.luxskinlasers.com/
+https://footsmartltd.co.uk/
+https://www.teenie-weenies.com/
+
 
 WordPress (Divi):
 https://justicesquared.org/

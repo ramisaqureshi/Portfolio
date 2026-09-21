@@ -42,7 +42,7 @@ LearnWorld:
 https://we-in-the-world-school-for-changemakers.learnworlds.com/
 
 Framer:
-https://agintex.com/
+https://agintex.com/ (also did SEO, AEO, GEO for this website through semrush and manual search with google analytics configured)
 
 GHL:
 https://realadvice.agency/
@@ -52,3 +52,7 @@ https://gramloyal-build-forge.lovable.app/
 https://akhirah-legacy-launch.lovable.app/
 https://nursery.teenie-weenies.com/
 https://unitas-hub.com/
+https://northpointcoffee.unitas-websites.com/
+
+Custom WordPress Theme Websites:
+https://shilajit.unitas-websites.com/

@@ -55,7 +55,7 @@ https://unitas-hub.com/
 https://northpointcoffee.unitas-websites.com/
 
 Custom WordPress Theme Websites:
-trustthegutfeeling.com
+https://trustthegutfeeling.com/
 https://lovehoperelief.com/
 https://housing-enquiry.unitas-websites.com/
 https://armajoiners.unitas-websites.com/
